@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **aishrii.sri@gmail.com**
 
-- 📄 [My Resume](https://drive.google.com/file/d/19L6WX8uSC7IX4CAaXNpeubfGplSeVKHN/view?usp=share_link)
+- 📄 [My Resume](https://drive.google.com/file/d/1L9m1fR2x9ZottS1kccwyS12Y0XwkSuQi/view?usp=sharing)
 
 - ⚡ Fun Fact **I love to read :)**
 
